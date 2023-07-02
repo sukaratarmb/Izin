@@ -1,0 +1,2 @@
+# Izin
+izin dulu bang 
